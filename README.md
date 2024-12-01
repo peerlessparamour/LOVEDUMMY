@@ -1,6 +1,9 @@
-- need 　the 　reassurance 　baby 　, 　not 　a 　silly 　romance 　!
-[![Untitled402-20241126203321.png](https://i.postimg.cc/0NLQ777R/Untitled402-20241126203321.png)](https://postimg.cc/TyJf6LkC)
-- guess 　im 　used 　to 　being 　dissapointed 　, 　falling 　to 　fast
-  
-- if 　you 　want 　it 　go 　and 　get 　it 　, 　and 　i 　hope 　you 　last .
-- if 　you 　want 　it 　go 　and 　get 　it 　, 　and 　i 　hope 　you 　last .
+- hi im melanie (or charlotte)
+- im a transgender female who uses any prns that arent masc or masc derived
+- i tend to be mean to people idk lmao sorry its just how i am
+- im diagonsed with bpd, c-ptsd, schizophrenia, udd, dyslexia & a few other things (that arent ur business)
+- i have a partner system who i love
+- usually you'll see me with my platonic husband, mika
+- tho feel free to c*h, i dont bite usually,, ^_^
+- (also im a really huge melanie copinglink, folly skins, copinglinks, fictionkins, etc preferably dni unless you tame or a fictive who is source attached
+- i do happen to have a dni which you can find at https://banhammerswife.straw.page/dni
