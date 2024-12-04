@@ -7,3 +7,4 @@
 - tho feel free to c*h, i dont bite usually,, ^_^
 - (also im a really huge melanie copinglink, folly skins, copinglinks, fictionkins, etc preferably dni unless you're tame or a fictive who isnt source attached)
 - i do happen to have a dni which you can find at https://banhammerswife.straw.page/dni
+- dnc = dont copy & cover , comf = made for confort and/or comfort character , introj = introject , sys = system , c*h = cuddle + hide , dniu = dont interact unless , sdni(u) = ships dont interact (unless) , cos = cosplay , clink = copinglink , fk = fictionkin
