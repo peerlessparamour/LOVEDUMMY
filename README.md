@@ -1,10 +1,9 @@
 - hi im melanie (or charlotte)
-- im a transgender female who uses any prns that arent masc or masc derived
-- i tend to be mean to people idk lmao sorry its just how i am
-- im diagonsed with udd, dyslexia & a few other things (that arent ur business)
-- i have a partner system who i love dearly
+- im a system co-host and a frequent fronter, that doesnt mean otherswont front (pls treat them like you'd treat me if they are fronting)
+- any prns/terms that arent masc or masc derived are ok to use
+- im ->diagonsed<- with udd, dyslexia & a few other things (that arent ur business)
+- i have a partner sys / gf
 - usually you'll see me with my platonic husband, mika
 - tho feel free to c*h, i dont bite usually,, ^_^
-- (also im a really huge melanie copinglink, folly skins, copinglinks, fictionkins, etc preferably dni unless you're tame or a fictive who isnt source attached)
 - i do happen to have a dni which you can find at https://banhammerswife.straw.page/dni
 - dnc = dont copy & cover , comf = made for comfort and/or comfort character , introj = introject , sys = system , c*h = cuddle + hide , dniu = dont interact unless , sdni(u) = ships dont interact (unless) , cos = cosplay , clink = copinglink , fk = fictionkin
