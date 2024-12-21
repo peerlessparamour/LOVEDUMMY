@@ -1,3 +1,4 @@
+·:*¨༺ ♱✮♱ ༻¨*:·
 - hi im radiant or charlotte (melanie if close)
 - im a system co-host and a frequent fronter, that doesnt mean otherswont front (pls treat them like you'd treat me if they are fronting)
 - any prns/terms that arent masc or masc derived are ok to use
