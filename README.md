@@ -1,5 +1,5 @@
-- hi im radiant or charlotte
+- hi im velvian
 - any prns/terms that arent masc are ok to use
-- autistic borderline system
+- system
 - 9/10 im with my husband mika
 - dnc = dont copy & cover , comf = made for comfort and/or comfort character , introj = introject , sys = system , c*h = cuddle + hide , dniu = dont interact unless
