@@ -2,4 +2,5 @@
 - any prns/terms that arent masc are ok to use
 - system
 - 9/10 im with my husband mika
+- i have a boyfriend (if u couldnt guess its mika) who makes me very happy
 - dnc = dont copy & cover , comf = made for comfort and/or comfort character , introj = introject , sys = system , c*h = cuddle + hide , dniu = dont interact unless
