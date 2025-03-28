@@ -1,4 +1,1 @@
-- hi im velvian
-- system
-- 9/10 im with my husband mika
-- i have a boyfriend (if u couldnt guess its mika) who makes me very happy
+
